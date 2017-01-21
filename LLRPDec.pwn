@@ -16,7 +16,7 @@
   |	     2016-11-21 10:06 AM  	  |
   |                               |
   |	   Creators:                  |
-  |      Faggot 1, Faggot 2        |
+  |      An immature looser.      |
   |                               |
   ================================*/
 
